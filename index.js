@@ -2,10 +2,10 @@
 
 // Deploy From New Repository ✅ 
 
-// KHAN-MD version 5.0 ❤️
+// KARL AI version 5.0 ❤️
 
-// Thanks For Chosing KHAN MD 🔥
+// Thanks For Chosing KARL AI BOT ASSISTANT 🔥
 
-// Made with ♥️ By JawadTechX
+// Made with ♥️ By Marx Muronzi (Karl)
 
-// Powered By JawadTechX KHAN-MD 2025 🚀
+// Powered By KARL AI TECHNOLOGIA KARL-AI 2025 🚀
