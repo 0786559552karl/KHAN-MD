@@ -2,7 +2,7 @@
 
 // Deploy From New Repository ✅ 
 
-// KARL AI version 5.0 ❤️
+// KARL AI . version 5.0 ❤️
 
 // Thanks For Chosing KARL AI BOT ASSISTANT 🔥
 
